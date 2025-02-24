@@ -56,7 +56,9 @@ EEE is the best
 
 
 ## Yousef Amr
- 
+
+I want to ..
+
 ## Usama Habib
 Time for Lunch..
 ## Hagar Hossam
@@ -71,10 +73,12 @@ ya mer7aba
 trying to sync again
 
 ## Bakynam
-I want to eat 
+konnichiwa
 ## Hossam Mohamed Mohamed Gad 
 Hello everyone
 ## Omar Mohammed Abdelhay
+
+Hello
 
 ## Karim Abdelhakim Zaki
    comment
